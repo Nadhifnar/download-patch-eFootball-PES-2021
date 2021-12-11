@@ -7,6 +7,23 @@ Android OBB File
 
 Ios CPK File
 
+Download Patch FIFA 22 V(5.6.0)
+
+Link 1: <a href="" target="_blank">Disini</a>
+
+Link 2: <a href="" target="_blank">Disini</a>
+
+Link 3: <a href="" target="_blank">Disini</a>
+
+Khusus ios
+
+Link 1: <a href="" target="_blank">Disini</a>
+
+Link 2: <a href="" target="_blank">Disini</a>
+
+Link 3: <a href="" target="_blank">Disini</a>
+
+
 Download Patch Manchester United V(5.6.0)
 
 Link 1: <a href="" target="_blank">Disini</a>
