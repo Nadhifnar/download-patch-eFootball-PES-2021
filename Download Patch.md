@@ -9,11 +9,11 @@ Ios CPK File
 
 Download Patch FIFA 22 V(5.6.0)
 
-Link 1: <a href="https://dik.si/D06j3" target="_blank">Disini</a>
+Link 1: <a href="" target="_blank">Disini</a>
 
-Link 2: <a href="https://dik.si/D06j3" target="_blank">Disini</a>
+Link 2: <a href="" target="_blank">Disini</a>
 
-Link 3: <a href="https://dik.si/D06j3" target="_blank">Disini</a>
+Link 3: <a href="" target="_blank">Disini</a>
 
 Khusus ios
 
